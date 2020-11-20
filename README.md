@@ -2,12 +2,12 @@
 
 ## What I liked:
 
-This is absolutely gorgeous looking product. Eugene's design is beautiful and the quality of wood, the attention to details and the style are all perfect. This was made with love and you can feel it.
+This is absolutely gorgeous looking product. Eugen's design is beautiful and the quality of wood, the attention to details and the style are all perfect. This was made with love and you can feel it.
 I also love the internal battery that keeps the clock going (with display off) when it's unplugged. Nice to not have to set it up every time I plug it again.
 
 ## What I have mixed feelings about:
 
-The time from order to delivery was two months. I am absolutely not mad about it. First, scraping old Soviet electronics for Nixie lamps is not an easy job, as they are no longer produced. Also Eugene messaged me about possibility to get it earlier if I switch to another wood type - nice to ask, and (as I wanted Bog Oak really badly) I felt quite fair when it got me another tiny delay.
+The time from order to delivery was two months. I am absolutely not mad about it. First, scraping old Soviet electronics for Nixie lamps is not an easy job, as they are no longer produced. Also Eugen messaged me about possibility to get it earlier if I switch to another wood type - nice to ask, and (as I wanted Bog Oak really badly) I felt quite fair when it got me another tiny delay.
 
 One month of that was delay on the border. But there was only post to blame there. So no hard feelings.
 
